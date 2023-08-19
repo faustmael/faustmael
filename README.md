@@ -1,4 +1,4 @@
-![img](https://media.discordapp.net/attachments/1030026001620684833/1142309052089630810/Fxu9mypX0AIbSZy-removebg-preview_1.png)
+![img](https://media.discordapp.net/attachments/1030026001620684833/1142309901528473610/Fxu9mypX0AIbSZy-removebg-preview_1_1.png)
 <br> he him , chilenowhite , autistic <br>
 <br> offtab majority of the time but i always am watching, feel free to interact with me ^_^ <br>
 <br>
