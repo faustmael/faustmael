@@ -4,7 +4,7 @@
 <br>
 <br> ★ leave me a note? https://www.yourworldoftext.com/faustmael <br>
 <br> or https://kanamafu.123guestbook.com/ <br>
-<br> ★ my rentry https://rentry.co/composingmusic
+<br> ★ my rentry https://rentry.co/composingmusic <br>
 <br> ★ my carrd https://faustmael.carrd.co/ <br>
 
 
