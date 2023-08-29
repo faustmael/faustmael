@@ -2,7 +2,8 @@
 <br> he him , chilenowhite , autistic <br>
 <br> offtab majority of the time but i always am watching, feel free to interact with me ^_^ <br>
 <br>
-<br> ★ leave me a note? https://www.yourworldoftext.com/faustmael <br>
+<br> ★ leave me a note? https://www.yourworldoftext.com/faustmael or https://kanamafu.123guestbook.com/ <br>
+<br> ★ my rentry https://rentry.co/composingmusic
 <br> ★ my carrd https://faustmael.carrd.co/ <br>
 
 
